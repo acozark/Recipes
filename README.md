@@ -1,4 +1,4 @@
-# A digital cookbook without the unnecessary life backstory. 
+# A digital cookbook without the unnecessary life backstory 
 
 This project contains recipes that have been converted from their original websites/pages into easy to read/follow markdown documents. 
 
