@@ -1,7 +1,7 @@
 # [Low Carb Chicken Alfredo with Broccoli](https://thatlowcarblife.com/low-carb-alfredo-sauce/)
-## Prep/Cook Time: 30 min total 
+##### Prep/Cook Time: 30 min total 
 
-## Ingredients 
+### Ingredients 
 * 16 oz chicken breasts (thin sliced)
 * 1/2 tsp salt
 * 1/2 tsp ground pepper
@@ -16,7 +16,7 @@
 * Salt to taste 
 * Pepper to taste 
 
-## Instructions 
+### Instructions 
 1. Sprikle the salt, pepper, paprika, and garlic powder evenly over both sides of the chicken.
 2. Heat a large skillet over medium heat and add the oil. 
 3. When oil is hot, add the chicken breasts and cook 5 minutes on each side or until chicken is cooked through.
