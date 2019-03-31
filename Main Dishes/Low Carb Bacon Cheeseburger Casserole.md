@@ -5,8 +5,9 @@
 ------------------- 
 ### Ingredients 
 * 1 lb ground beef 
-* 3 teaspoons garlic powder 
-* 1 teaspoon worcestershire sauce or soy sauce
+* 3 teaspoons onion powder  
+* 1 heaping tsp of minced garlic
+* 1 teaspoon worcestershire sauce/soy sauce/steak sauce
 * 2 oz cream cheese 
 * 2 eggs 
 * 1 tbsp mustard 
@@ -15,7 +16,7 @@
 * 1 teaspoon Burger Seasoning (paprika, soy sauce, red pepper flakes, Basil, garlic powder, onion powder, salt, pepper, worchestire sauce) 
 * salt to taste
 * pepper to taste 
-* 3 slices ofbacon cooked and crumbled 
+* 3 slices of bacon cooked and crumbled 
 ----------------------------- 
 ### Instructions: 
 1. Preheat oven to 350 degrees.
