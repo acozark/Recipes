@@ -1,0 +1,38 @@
+# [Buffalo Chicken Meatballs](https://thatlowcarblife.com/buffalo-chicken-meatballs/)
+These meatballs bake up in less than 15 minutes and are perfect for serving at the next football game!
+
+Per meatball: 163 calories, 12g fat, 12g protein, 2g carbs, 1g fiber = 1 net carb
+
+ Course Appetizer, Snack
+ Cuisine American
+ Prep Time 10 minutes
+ Cook Time 13 minutes
+ Total Time 23 minutes
+ Servings 12 meatballs
+ Calories 163 kcal
+Ingredients
+1 pound ground chicken
+1/3 cup almond flour
+¼ cup Parmesan cheese
+1 clove garlic minced
+1 egg
+1 tablespoon chives
+½ teaspoon onion powder
+½ cup Frank’s hot sauce
+2 tablespoons melted butter
+Ranch for drizzling
+Instructions
+Preheat oven to 500 degrees. Spray a large baking sheet with non-stick spray.
+
+Add the ground chicken, almond flour, Parmesan, garlic, egg, chives, and onion powder to a mixing bowl and mix with your hands until combined.
+
+Shape mixture into 12 evenly sized meatballs and place on the prepared baking sheet.
+
+Bake for 13 minutes or until chicken is cooked through.
+
+Whisk together the hot sauce and melted butter in a bowl and add the meatballs. Toss gently to coat.
+
+Serve meatballs hot or cold with a drizzle of ranch dressing.
+
+Recipe Notes
+For extra spicy meatballs, add ground cayenne pepper to the meatball mixture
