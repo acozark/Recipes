@@ -10,7 +10,7 @@
 * 1 tbsp avocado oil or olive oil
 * 16 oz broccoli
 * 1/2 cup heavy whipping cream
-* 1/4 cup butter
+* 4 tbsp butter
 * 1 tsp minced garlic
 * 1 cup shredded Parmesan 
 * Salt to taste 
