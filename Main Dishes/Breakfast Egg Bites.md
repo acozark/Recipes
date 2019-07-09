@@ -1,7 +1,8 @@
 # [Breakfast Egg Bites](https://www.flavcity.com/keto-breakfast-egg-bites) 
 ##### Prep/Cook Time 5 min/30 min
 
-### Recipe for 6 egg bites in Small Muffin Pan: 
+### Recipe for 6 small egg bites: Keep as is 
+### Recipe for 6 big egg bites: Double ingredients and cook for 50-55 min
 
 #### Ingredients:
 * 5 eggs
