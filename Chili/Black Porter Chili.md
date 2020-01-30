@@ -1,6 +1,9 @@
 # [Black Porter Chili](https://www.cakenknife.com/black-porter-chili/) 
 
-##### Prep & Cook Time: 35-40 min 
+##### Prep & Cook Time: 35-40 min
+##### 5 Servings 
+##### 385 Calories
+
 
 
 -------------
