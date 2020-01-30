@@ -1,6 +1,6 @@
 # Berry Banana Kefir Drink
 
-##### Prep Time: 10 min 
+##### Prep Time: 5 min 
 ##### 7 Servings 
 ##### 163 Calories 
 
