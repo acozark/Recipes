@@ -1,4 +1,4 @@
-# [Breakfast Egg Bites](https://www.flavcity.com/keto-breakfast-egg-bites) 
+# [Bacon Breakfast Egg Bites](https://www.flavcity.com/keto-breakfast-egg-bites) 
 ##### Prep/Cook Time 5 min/30 min
 
 ### Recipe for 6 small egg bites: Keep as is 
