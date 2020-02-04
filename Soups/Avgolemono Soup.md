@@ -34,7 +34,7 @@
 
 #### 2. Eggs, Chicken, Lemon Juice 
 - Crack eggs and whisk in a mixing bowl.  
-- Ladle 1 cup of broth into eggs then une an immersion blender to combine. 
+- Ladle 1 cup of broth into eggs then use an immersion blender to combine. 
 - Add hot broth and egg combination back to the soup. 
 - Add diced chicken and lemon juice, and white/black pepper. 
 - Stir to incorporate, heat through. 
