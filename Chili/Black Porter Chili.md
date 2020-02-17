@@ -47,4 +47,6 @@ Add the beans, tomatoes, tomato paste, beer and spices.
 Simmer over medium heat for approximately 25 to 30 minutes, until thickened. 
 
 #### 3. Top It Off 
-Serve with any desired toppings such as shredded cheese or sour cream.
+Serve with any desired toppings such as shredded cheese or sour cream. 
+
+Servings of 5: 10.5 oz frozen bags
