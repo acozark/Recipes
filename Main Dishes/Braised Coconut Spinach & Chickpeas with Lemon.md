@@ -1,6 +1,7 @@
 # [Braised Coconut Spinach & Chickpeas with Lemon](https://www.thekitchn.com/recipe-braised-coconut-spinach-chickpeas-with-lemon-recipes-from-the-kitchn-164551) 
 
-##### Prep & Cook Time:
+##### Prep & Cook Time: 
+##### 4 Servings: 430 cal
  
  
  ----------------- 
