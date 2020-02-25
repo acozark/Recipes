@@ -18,7 +18,12 @@
 * 1/8 teaspoon salt, more to taste
 * freshly ground black pepper
 * 1/3 cup heavy cream
-* 2 tablespoons cilantro 
+* 2 tablespoons cilantro  
+* 1 tsp Tumeric 
+* 1 tsp Cumin 
+* 1 tsp Ground Ginger 
+* Garlic Granules to taste
+* Garam Masala to taste
 ------------------ 
 ### Instructions 
 
