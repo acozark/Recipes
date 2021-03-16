@@ -42,6 +42,7 @@ Stir in chocolate chips and walnuts
 
 #### 6. Portion and Bake  
 Portion Dough with a scoop (about 3 tbsps) onto a baking sheet with parchment paper/silcon mat about 2 inches apart. Bake for 20-23 min. Cool on sheet for 1 hour.  
+
 --------------------- 
 ### Notes
 You can freeze unbaked cookies, and there's no need to thaw. Preheat oven to 300F and place frozen cookies on parchment paper-lined baking sheet about 2 inches apart. Bake until edges are golden brown and center is still soft.
