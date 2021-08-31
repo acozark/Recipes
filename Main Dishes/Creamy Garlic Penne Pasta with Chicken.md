@@ -1,15 +1,15 @@
-* [Creamy Garlic Penne Pasta with Chicken](https://www.yellowblissroad.com/creamy-chicken-pesto-pasta/) 
+# [Creamy Garlic Penne Pasta with Chicken](https://www.yellowblissroad.com/creamy-chicken-pesto-pasta/) 
 
 ##### Prep & Cook Time: 15 min/ 25 min 
 
 
 ------------------------------ 
-###Equipment 
+### Equipment 
 * deep skillet 
 * collander  
 * plate 
 -------------------------------- 
-###Ingredients 
+### Ingredients 
 * 12 oz penne pasta cooked to al dente 
 * 2 tbsp olive oil 
 * 1.5 lbs of chicken breast cut into small pieces 
