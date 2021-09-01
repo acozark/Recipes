@@ -1,7 +1,8 @@
 # [Gnocchi with Squash and Kale](https://www.foodnetwork.com/recipes/food-network-kitchen/gnocchi-with-squash-and-kale-recipe-1973760) 
 
 ##### Cook Time: 35 min 
-##### 4 Servings 
+##### 4 Servings  
+##### Cal 438, Fat 23g, Carbs 42g, Protein 16g
 ------------------------- 
 ### Equipment 
 * large ovenproof skillet
