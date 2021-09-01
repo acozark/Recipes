@@ -1,7 +1,8 @@
 # Chicken Parmesan 
 
 ##### Cook Time: 40 min
-##### 4 Servings 
+##### 4 Servings  
+##### Cal 698, Fat 31g, Carb 59g, Protein 46g
 -------------- 
 ### Equipment 
 * Pot 
